@@ -77,4 +77,4 @@
 ## 👨‍💻 Author
 **Om Pimple**  
 
-🔗 [GitHub](https://github.com/OmPimple26) | [LinkedIn](www.linkedin.com/in/om-pimple-0042822b3)
+🔗 [GitHub](https://github.com/OmPimple26) | [LinkedIn](https://www.linkedin.com/in/om-pimple-0042822b3/)
